@@ -1,1 +1,1 @@
-# very-basic-resume
+https://muneerhashmat.github.io/very-basic-resume/
